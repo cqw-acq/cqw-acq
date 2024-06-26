@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cqw-acq
 - 👀 I’m interested in COMMPUTER!!!
 - 🌱 I’m currently learning c++,JAVA
-- 💞️ I’m have love with Kathy!!
+- 💞️ I’m have loved with Kathy!!
 - 📫 How to reach me chuqijerry@outlook.com
 - 😄 Pronouns: what the h**k is this?
 - ⚡ Fun fact: NA
